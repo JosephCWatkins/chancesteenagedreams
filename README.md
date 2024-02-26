@@ -1,3 +1,4 @@
+![alt text](https://images.wakelet.com/resize?id=nB3f6MkeMRJJpvmwu8ZN6&h=300&w=400&q=85)
 This is a collection of the rare 50's Rock n Roll that I have discovered. I am mainly doing this to have 
 my collection in a central place as well as to try to preserve the recordings of this music as best as 
 possible; as it is relatively hard to get these recordings here in America (as I think most of these 
